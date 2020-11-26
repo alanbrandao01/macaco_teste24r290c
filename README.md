@@ -1,1 +1,0 @@
-# macaco_teste24r290c
